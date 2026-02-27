@@ -6,7 +6,7 @@
 
 ## 📞 301 672 8133
 
-## 💻 GitHub: https://github.com/lagscion
+## 💻 [Github](https://github.com/lagscion)
 
 ## Perfil profesional 💼
 
